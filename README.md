@@ -2,17 +2,13 @@
 
 ###
 
-<img align="right" height="168" src="https://gifdb.com/images/high/black-clover-asta-breathing-2ixtn7f0vyrvacny.gif"  />
+<img align="right" height="168" src="https://64.media.tumblr.com/a72f28b89caa5ef8fcc19b340fc40069/ce2052d0e5dadb00-04/s540x810/02969c1aef1d71342cef056784701bd6bfbfc3d4.gif"  />
 
 ###
 
 <p align="left">Just be better</p>
 
 ###
-
-<div align="center">
-  <img height="180" src="https://64.media.tumblr.com/a72f28b89caa5ef8fcc19b340fc40069/ce2052d0e5dadb00-04/s540x810/02969c1aef1d71342cef056784701bd6bfbfc3d4.gif"  />
-</div>
 
 
 ###
